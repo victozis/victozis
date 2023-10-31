@@ -4,4 +4,4 @@ eu sou o victor, gosto de cachorros e passaros, jogo fnaf no roblox e gosto de m
 ### meu email de contato 
 victor.lesniovski@escola.pr.gov.br
 
-![]([https://media.tenor.com/O2zuuKm0iq0AAAAi/bro-its.gif](https://media.tenor.com/3SvGTJ-ZRyIAAAAC/kanye.gif)https://media.tenor.com/3SvGTJ-ZRyIAAAAC/kanye.gif)
+![](https://media.tenor.com/3SvGTJ-ZRyIAAAAC/kanye.gif)
