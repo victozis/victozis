@@ -2,6 +2,6 @@
 
 
 ### meu email de contato 
-victor.lesniovski
+victor.lesniovski@escola.pr.gov.br
 
 ![](https://media.tenor.com/98KOoVcxs_QAAAAC/bozo.gif)
