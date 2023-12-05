@@ -1,5 +1,5 @@
 ### Hi there 👋
-eu sou o victor, gosto de cachorros e passaros, jogo fnaf no roblox e gosto de buceta
+eu sou o victor, gosto de cachorros e passaros, jogo fnaf no roblox e gosto de mulher
 
 ### meu email de contato 
 victor.lesniovski@escola.pr.gov.br
